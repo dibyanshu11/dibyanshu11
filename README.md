@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @dibyanshu11
 - 👀 I’m interested in advanced coding.
-- 🌱 I’m currently learning blockchain development.
 - 💞️ I’m looking to collaborate on  long term  projects.
 - 📫 How to reach me Linkdin : https://www.linkedin.com/in/divyanshu-07/ and Skype: divyanshu.ranjan11
 
